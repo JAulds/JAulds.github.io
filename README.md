@@ -1,2 +1,2 @@
 # JAulds.github.io
-App Website
+Thank you for visiting my App Library hub!
